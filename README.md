@@ -1,5 +1,4 @@
-<img src="assets/1.webp" alt="On stage at the Orange County 48hr Film Festival" height="300">
-<img src="assets/2.webp" alt="Operating camera on set, in a propeller hat" height="300">
+<p align="left"><img src="assets/1.webp" alt="On stage at the Orange County 48hr Film Festival" height="300"> <img src="assets/2.webp" alt="Operating camera on set, in a propeller hat" height="300"></p>
 
 # Micah Lai
 
