@@ -6,7 +6,7 @@ Hey! I'm a student at Cornell University studying Electrical & Computer
 Engineering. I'm interested in CMOS sensor hardware and computational
 engineering, as well as audio DSP.
 
-I'm also an artist, studying film & cinematography in high school and continue to do so as a hobby along with graphic design and photography.
+I'm also an artist: I studied film & cinematography in high school and continue to do so as a hobby along with graphic design and photography.
 
 In off hours: guitar, piano, dancing, and rock climbing.
 
