@@ -13,6 +13,6 @@ In off hours: guitar, piano, dancing, and rock climbing.
 → **[micahlai.com](https://micahlai.com)**
 
 
-[(Email)](mailto:mjl423@cornell.edu) · [(LinkedIn)](https://www.linkedin.com/in/micahlai/) · [(Instagram)](https://www.instagram.com/micahlai.ftv/) · [(Site)](https://micahlai.com)
+[(Email)](mailto:mjl423@cornell.edu) · [(LinkedIn)](https://www.linkedin.com/in/micahlai/) · [(Instagram)](https://www.instagram.com/micahlai.ftv/)
 
 <sub>1 Peter 4:10-11</sub>
